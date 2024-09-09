@@ -19,7 +19,7 @@ Currently, I am working on various projects that combine my skills in art and we
 ##Contact
 - **Email**: [maineromartina06@gmail.com](mailto:maineromartina06@gmail.com)
 - **LinkedIn**: https://www.linkedin.com/in/martina-mainero-52948821b/
-- **Portfolio**: [Your Website/Portfolio](Portfolio URL)
+- **Portfolio**: 
 
 ---
 
